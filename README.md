@@ -1,4 +1,4 @@
-### Hi there 👋
+### B. C. Lee
 
 <!--
 **bchanlee/bchanlee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
